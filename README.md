@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Niyaz
 - 👀 I’m interested in programming cyber security and ethical hacking
 - 🌱 I’m currently learning BCA
-- 📫 How to reach me ni.yyaz in instagram
+- 📫 How to reach me @niyyaz in telegram
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
